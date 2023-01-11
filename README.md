@@ -1,5 +1,5 @@
 # morgan-osu-skins
- if a link does not work it is because one of the download things we use is down 
+ this is not a reupload or anything 
 # please keep in mind that some of them are remakes
 
 # for puush links you have to do save link as in case clicking on the download isnt working
@@ -246,7 +246,7 @@ pray that i still have the skin or not
 
 # [very legal skin (wip wait a small sec)]
 
-my discord: venomthor2#7999 
+my discord: venom.#7999 
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
 
 
