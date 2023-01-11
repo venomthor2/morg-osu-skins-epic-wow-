@@ -244,8 +244,7 @@ pray that i still have the skin or not
 # [SAIMONEA SKIN](https://b.catgirlsare.sexy/UkmvWOWM.osk)
 ![](https://i.imgur.com/WlhEUCy.png)
 
-# [imagine being dmcad because of a skin](https://www.mediafire.com/file/40ziagie2b1j15l/-__natori.osk/file)
-imagine dmcaing minors imagine dmcaing for a skin you didnt make any artwork for 
+# [very legal skin (wip wait a small sec)]
 
 my discord: venomthor2#7999 
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
