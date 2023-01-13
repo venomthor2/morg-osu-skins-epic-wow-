@@ -1,5 +1,6 @@
 # morgan-osu-skins
- this is not a reupload or anything 
+ repo reup 
+ old contributor credits: wonderer,snowy 
 # please keep in mind that some of them are remakes
 
 # for puush links you have to do save link as in case clicking on the download isnt working
