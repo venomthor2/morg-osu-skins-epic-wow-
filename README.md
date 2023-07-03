@@ -110,7 +110,7 @@ pray that i still have the skin or not
 # [one in a billion](https://b.catgirlsare.sexy/KogVblOw.osk)
 ![](https://i.imgur.com/o601t3O.png)
 
-# [choir jail pls wonderer or snowy add screenshots im at school rn](https://circle-people.com/wp-content/Skins/hvick225/hvick225%202016-12-3%20--Dare.osk)
+# [choir jail](https://circle-people.com/wp-content/Skins/hvick225/hvick225%202016-12-3%20--Dare.osk)
 ![](https://i.imgur.com/aiAG1sw.png)
 
 # [yoake no bell ga naru](https://b.catgirlsare.sexy/CDpDUjgI.osk)
@@ -194,10 +194,10 @@ pray that i still have the skin or not
 # [twitter skin part 3](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14820344/56e3)
 
-# [twitter skin part 4 (thanks @14160 on  twitter for the skin)](https://b.catgirlsare.sexy/t_momdVX.osk)
+# [twitter skin part 4](https://b.catgirlsare.sexy/t_momdVX.osk)
 ![](https://osu.ppy.sh/ss/14820334/8779)
 
-# [Mega Private Skin (IMPOSSIBLE TO GET)](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
+# [Private Skin Very](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
 ![](https://osu.ppy.sh/ss/14905449/6416)
 
 # [uso no hibana](https://b.catgirlsare.sexy/Kobl0GTQ.osk)
