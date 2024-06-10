@@ -80,7 +80,7 @@ pray that i still have the skin or not
 # [nanario](https://b.catgirlsare.sexy/ljKWkX8C.osk)
 ![](https://i.imgur.com/ZQOskyr.png)
 
-# [love bbb](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
+# [love bbb](https://venomthor2.s-ul.eu/IQyduSak)
 ![](https://i.imgur.com/SyEqGzb.png)
 
 # [outbreak](https://b.catgirlsare.sexy/wLlDdcu7.osk)
