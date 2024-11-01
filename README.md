@@ -248,7 +248,7 @@ pray that i still have the skin or not
 # # [![not legal!](https://user-images.githubusercontent.com/45379301/211455823-af3a364b-0734-4844-9857-0a6197d4309a.png)](https://femboye.s-ul.eu/kKaWh0u4)
 click the image
 
-my discord: venomthor2#7999
+my discord: venveni_
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
 
 
