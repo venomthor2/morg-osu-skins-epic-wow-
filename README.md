@@ -3,39 +3,34 @@
  old contributor credits: wonderer,snowy 
 # please keep in mind that some of them are remakes
 
-# for puush links you have to do save link as in case clicking on the download isnt working
+for puush links you have to do save link as in case clicking on the download isnt working
 
-also just saying that b.catgirlsare.sexy (yes its the name of the link lol) sometimes goes down so yeah if u rly want the skin instead of waiting dm me or smth and 
-pray that i still have the skin or not 
+b.catgirlsare.sexy sometimes goes down if u rly want the skin instead of waiting dm me and i might have the skin
 
- 
 
-# [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
+# [morgan red](https://morgan.s-ul.eu/hHfDd2fD)
 ![](https://osu.ppy.sh/ss/14096632/2672)
  
-# [- + morgan gray](https://morgan.s-ul.eu/UJzmIsLw)
+# [morgan gray](https://morgan.s-ul.eu/UJzmIsLw)
 ![](https://osu.ppy.sh/ss/14096660/e821)
 
-# ~~[morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)~~ [original one](https://b.catgirlsare.sexy/lT7d43DQ.osk)
+# [cinnaroll](https://b.catgirlsare.sexy/lT7d43DQ.osk)
 ![](https://osu.ppy.sh/ss/14454795/597f)
 # [mirror link](https://www.mediafire.com/file/d4x9etlxof0idk9/morgna_cinnaroll.osk/file)
 
-# [Reira+Neil morgan](https://morgan.s-ul.eu/v0UFDMSu) thank u wandarerzeroonezerothree (thanks alot u/Wonderer0103) 
+# [Reira Neil](https://morgan.s-ul.eu/v0UFDMSu) (thanks alot u/Wonderer0103) 
 ![](https://osu.ppy.sh/ss/14110711/f410)
 
-# [skin with rustbell circles](http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file)
+# [imey](http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file)
 ![](https://i.imgur.com/0DvjwNz.png)
 
-# [morgna osu private skin remake](https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%21_%23_%21_%23_%21_%23_%21_morgna_osu_private_skin.osk/file)
-![](https://i.imgur.com/XWFPo5K.png)
-
-# [skin that he published](https://drive.google.com/file/d/17K2uVEIP6o0S_u6Z-yndNTrFxdgH62kC/view?usp=drive_open)
+# [morgan original](https://drive.google.com/file/d/17K2uVEIP6o0S_u6Z-yndNTrFxdgH62kC/view?usp=drive_open)
 ![](https://i.imgur.com/0vjf2RZ.png)
 
-# [kune skin](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
+# [kune](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
 ![](https://i.imgur.com/iwvuZos.png)
 
-# [toke skin](https://asdfasdfasdf.s-ul.eu/52AOLdo6)
+# [toke](https://asdfasdfasdf.s-ul.eu/52AOLdo6)
 ![](https://osu.ppy.sh/ss/14941908/f8e9)
 
 # [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
@@ -44,7 +39,7 @@ pray that i still have the skin or not
 # [uberlangen](https://b.catgirlsare.sexy/lLKMq1Xp.osk)
 ![](https://i.imgur.com/XXXMtHu.png)
 
-# [rafis elohere](https://skins.osuck.net/index.php?newsid=164)
+# [elohere](https://skins.osuck.net/index.php?newsid=164)
 ![](https://i.imgur.com/CodCQkm.png)
 
 # [smh](https://b.catgirlsare.sexy/S9sfaHwB.osk)
@@ -53,10 +48,7 @@ pray that i still have the skin or not
 # [green skin](http://puu.sh/DFB0K/faeb561091.osk)
 ![](https://i.imgur.com/arIB17V.png)
 
-# [-dddddd- ryuk (broken link) ](http://puu.sh/DD1aK/53a5aa7cc4.osk)
-![](https://i.imgur.com/j4uWDkX.png)
-
-# [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=1)
+# [morgan blue](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=1)
 ![](https://osu.ppy.sh/ss/13029693)
 
 # [fangzy](https://b.catgirlsare.sexy/a21Tuosk.osk)
@@ -65,10 +57,10 @@ pray that i still have the skin or not
 # [hvick225](https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar)
 ![](https://i.imgur.com/IAVvpYg.png)
 
-# [his twitter skin (thank you amity for circles and numbers)](https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file)
+# [twitter skin 1](https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file)
 ![](https://i.imgur.com/knVA5Em.png)
 
-# [euphorium liveplay](https://b.catgirlsare.sexy/QvtmGS29.osk) 
+# [euphorium](https://b.catgirlsare.sexy/QvtmGS29.osk) 
 ![](https://i.imgur.com/a3CV1yB.png)
 
 # [fighting gold](https://b.catgirlsare.sexy/1ECJEwKd.osk)
@@ -86,25 +78,22 @@ pray that i still have the skin or not
 # [outbreak](https://b.catgirlsare.sexy/wLlDdcu7.osk)
 ![](https://i.imgur.com/bOnfM6c.png)
 
-# [palette gamma liveplay](https://skins.osuck.net/index.php?newsid=291)
+# [palette gamma](https://skins.osuck.net/index.php?newsid=291)
 ![](https://i.imgur.com/YOFKy1w.png)
 
 # [sakura no zenya](https://drive.google.com/file/d/1dKTqdCEFZYwfEozV0ztU0Mvf3kjR_Kc-/view)
 ![](https://i.imgur.com/gre8hUF.png)
 
-# [kioku x something something](https://b.catgirlsare.sexy/H7kmgPuv.osk)
+# [kioku](https://b.catgirlsare.sexy/H7kmgPuv.osk)
 ![](https://i.imgur.com/QVZ7g6S.png)
 
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 ![](https://i.imgur.com/MgLVz9V.png)
 
-# [versace summer original one thx slushy](https://b.catgirlsare.sexy/NxJp_vM_.osk)
+# [versace summer original](https://b.catgirlsare.sexy/NxJp_vM_.osk)
 ![](https://i.imgur.com/iay8wOm.png)
 
-# [versace summer but not remake(thanks dt worst mode on discord for reverse arrow)](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
-![](https://i.imgur.com/bW1k4PT.png)
-
-# [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=1)
+# [twitter skin again](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14118234/414e)
 
 # [one in a billion](https://b.catgirlsare.sexy/KogVblOw.osk)
@@ -134,16 +123,13 @@ pray that i still have the skin or not
 # [rinne](https://asdfasdfasdf.s-ul.eu/mn0qLlDT)
 ![](https://i.imgur.com/Hu4UEUs.png)
 
-# [better morgan skin remake credit: u/LegitDiamond](https://www.dropbox.com/s/85iexzlauh8339o/Morgan%20Skin%20Remake%20With%20SD.osk?dl=0)
-![](https://osu.ppy.sh/ss/14425075/7eda)
-
 # [hime hime](https://www.mediafire.com/file/tqafggcq7tkiezk/-_elohere_morgan_edit.osk/file)
 ![](https://osu.ppy.sh/ss/14511163/ada4)
 
 # [salvation](https://www.mediafire.com/file/p1h1dt037km8tux/-_Lines_morgan_edit.osk/file)
 ![](https://osu.ppy.sh/ss/14511228/e994)
 
-# [morgan (flor) private skin omg](https://b.catgirlsare.sexy/51QemVHF.osk)
+# [flor](https://b.catgirlsare.sexy/51QemVHF.osk)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
 # [inferno](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
@@ -167,10 +153,10 @@ pray that i still have the skin or not
 # [m'aider](https://www.dropbox.com/s/l76gymjrn59p4xv/army.zip?dl=1)
 ![](https://i.imgur.com/IdNUJh5.png)
 
-# [dont think smile (well im not)](https://www.mediafire.com/file/x14clba67vb1c65/azer8grey.osk/file)
+# [azr8 grey](https://www.mediafire.com/file/x14clba67vb1c65/azer8grey.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-05/1559046957_screenshot4433.jpg)
 
-# [no more](https://www.mediafire.com/file/60ssupzm69007g7/-_femboy_dude_skin_remake.osk/file)
+# [no more (shit remake used wrong tone of purple)](https://www.mediafire.com/file/60ssupzm69007g7/-_femboy_dude_skin_remake.osk/file)
 ![](https://osu.ppy.sh/ss/14648978/701b)
 
 # [star map remake (thanks snowy for finding the circles)](https://www.mediafire.com/file/9fqfg1273te50hn/wew_lad.osk/file)
@@ -197,7 +183,7 @@ pray that i still have the skin or not
 # [twitter skin part 4](https://b.catgirlsare.sexy/t_momdVX.osk)
 ![](https://osu.ppy.sh/ss/14820334/8779)
 
-# [Private Skin Very](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
+# [Private Skin Leak](https://drive.google.com/file/d/1lveszkbHqJ6EuVFlF5-4cpC1727-r-Qt/view)
 ![](https://osu.ppy.sh/ss/14905449/6416)
 
 # [uso no hibana](https://b.catgirlsare.sexy/Kobl0GTQ.osk)
@@ -221,32 +207,50 @@ pray that i still have the skin or not
 # [stella-rium](https://circle-people.com/wp-content/Skins/Mathi/Mathi%202017-08-20.osk)
 ![](https://osu.ppy.sh/ss/15078392/e700)
 
-# [twitter skin 9uihsaf hiuoasih8ounf rasuioh](https://b.catgirlsare.sexy/WFMh7ppG.osk)
+# [twitter skin 5](https://b.catgirlsare.sexy/WFMh7ppG.osk)
 ![](https://osu.ppy.sh/ss/15121990/dbb9)
 
-# [sakura no uta thanks nice guy on discord for the skin](https://www.mediafire.com/file/scqn428ba2ccweh/doki_dt_mix.osk/file)
+# [sakura no uta](https://www.mediafire.com/file/scqn428ba2ccweh/doki_dt_mix.osk/file)
 ![](https://osu.ppy.sh/ss/15122038/eaa1)
 
-# [twitter asdf1234](https://t.co/88Akgs02nG?amp=1)
+# [another twitter skin](https://t.co/88Akgs02nG?amp=1)
 ![](https://osu.ppy.sh/ss/15175333/59c7)
 
 # [pink lemonade](https://www.dropbox.com/s/s2frd3y79k7rx5t/meow_2.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15233909/62c3)
 
-# [my life is over and i couldn't be happier](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
+# [nara](https://www.mediafire.com/file/sm97s7sidmsuja2/Nara+5.3.zip/file)
 ![](https://osu.ppy.sh/ss/15246560/768f)
 
-# [lol morgan is dead but this list is not](https://b.catgirlsare.sexy/VLpAiL5J.osk)
+# [rip](https://b.catgirlsare.sexy/VLpAiL5J.osk)
 ![](https://osu.ppy.sh/ss/15525143/e96b)
 
-# [seiken nante iranai but its the actual skin](http://www.mediafire.com/file/kshpwj926n1hloj/-+dream+is+gay.osk/file)
+# [seiken nante iranai ignore the skin name](http://www.mediafire.com/file/kshpwj926n1hloj/-+dream+is+gay.osk/file)
 ![](https://osu.ppy.sh/ss/15752529/d64d)
 
-# [SAIMONEA SKIN](https://b.catgirlsare.sexy/UkmvWOWM.osk)
+# [SAIMONEA](https://b.catgirlsare.sexy/UkmvWOWM.osk)
 ![](https://i.imgur.com/WlhEUCy.png)
 
 # # [![not legal!](https://user-images.githubusercontent.com/45379301/211455823-af3a364b-0734-4844-9857-0a6197d4309a.png)](https://femboye.s-ul.eu/kKaWh0u4)
 click the image
+
+# irrelevant remakes that ill keep here in case somehow you prefer the remakes
+
+# [better morgan skin remake credit: u/LegitDiamond](https://www.dropbox.com/s/85iexzlauh8339o/Morgan%20Skin%20Remake%20With%20SD.osk?dl=0)
+![](https://osu.ppy.sh/ss/14425075/7eda)
+
+# [morgna osu private skin remake](https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%21_%23_%21_%23_%21_%23_%21_morgna_osu_private_skin.osk/file)
+![](https://i.imgur.com/XWFPo5K.png)
+
+# [versace summer but not remake(thanks dt worst mode on discord for reverse arrow)](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
+![](https://i.imgur.com/bW1k4PT.png)
+
+# [-dddddd- ryuk (broken link) ](http://puu.sh/DD1aK/53a5aa7cc4.osk)
+![](https://i.imgur.com/j4uWDkX.png)
+
+# ~~[morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)~~ 
+
+extra credits: amity, nice guy,slushy, dt worst mode and idk who else since i dont remember these people 
 
 my discord: venveni_
 thanks alot to both my contributors and the ppl who have contacted me on discord to help i appreciate it alot
